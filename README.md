@@ -9,3 +9,4 @@ When: 𝗠𝗮𝗿𝗰𝗵 𝟮𝟬𝟮𝟲
 𝗣𝗿𝗲-𝗦𝗰𝗿𝗲𝗲𝗻𝗶𝗻𝗴 𝗦𝘂𝗿𝘃𝗲𝘆 𝗟𝗶𝗻𝗸: https://lnkd.in/gh7esmhM
 
 *Completion of this survey will not result in payment. Only participants who are selected for and participate in the research study will receive the incentive.
+Once we receive your responses, a member from our team will reach out for scheduling if you qualify. Thank you!
